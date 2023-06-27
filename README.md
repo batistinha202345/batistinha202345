@@ -5,4 +5,4 @@
 - 💬 Gosto de ser dedica e esforçada em meus estudos.
 - 📚 Sou boa em criar projetos.
 - 💻 Aqui vc encontra alguns codigos que fiz no curso.
-- 📫 Como chegar até mim: 
+- 📫 Como chegar até mim: @capar.2022113iinf0018@aluno.edu.ifpi.br
